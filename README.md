@@ -1,0 +1,1 @@
+# Trnncate_Method_Task
